@@ -1,0 +1,2 @@
+# BEACH-GETAWAY
+This is a SEMI-FINAL PROJECT FOR TWRITE, BSIT 2-B, TWRITE 21, created by Jay &amp; Harry 
